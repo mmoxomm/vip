@@ -3,6 +3,4 @@
 淘宝/淘特/天猫/京东/拼多多/唯品会/苏宁易购/考拉海购内部优惠券。  
 
 # 会员共享QQ群  
-#### QQ群链接：[点击加入QQ群](https://jq.qq.com/?_wv=1027&k=oxLWwtYI "点击加入QQ群")  
-#### 手机QQ扫描二维码加入QQ群  
-![](https://github.com/mmoxomm/vip/blob/main/qq.jpg)  
+#### QQ群链接：[点击加入QQ群](https://jq.qq.com/?_wv=1027&k=JuvO5aov "点击加入QQ群")    
